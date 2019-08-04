@@ -1,0 +1,2 @@
+# Faheem-Ahmed
+i,Faheem ahmed have word as an Admin in many companies and institute . basically , i belong to IT where i performed in many expect like record keeping , securing confidential information , taking steps for the growth of organization and many more . i really enjoy working with different organization with full enthusiasm . i m looking forward to work with full capabilities with you . 
